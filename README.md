@@ -1,4 +1,10 @@
-## Hi there 👋
+# jess
+
+hi i'm a girl i do coding sometimes (mainly lua, sometimes gdscript and java)
+i like roleplaying and stories and such, i have anxiety and adhd
+(if i dm you it means i think you're cool and probably want to talk but i might fail miserably at it)
+
+women
 
 <!--
 **soup587/soup587** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
