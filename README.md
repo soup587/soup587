@@ -4,6 +4,8 @@ hi i'm a girl i do coding sometimes (mainly lua, sometimes gdscript and java)
 i like roleplaying and stories and such, i have anxiety and adhd
 (if i dm you it means i think you're cool and probably want to talk but i might fail miserably at it)
 
+if i annoy you or make you uncomfortable please tell me straight away!! i can not pick up on hints for the life of me
+
 women
 
 <!--
